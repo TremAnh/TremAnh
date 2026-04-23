@@ -9,9 +9,10 @@ Wishing you a wonderful day, and I am Tram.
 ´꒳`  𝅄 ׄৎ୭ 𓈒
 
 <div align="center">
-<img src="https://i.pinimg.com/736x/b4/25/30/b42530509a81a38f0b0cc2a9a7c49914.jpg" align="center" style="width: 100%" />
+<img src="https://i.pinimg.com/1200x/81/b9/a8/81b9a828ec504f12b94a12093bf2e637.jpg" align="center" style="width: 100%" />
 </div>  
 ˚ ༘ ♡ ⋆｡
 ˚ ༘ ♡ ⋆｡
 说话甜言蜜语的人 
 为了失去我对你最深的信任 ..
+=============
