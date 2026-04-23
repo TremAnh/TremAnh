@@ -1,2 +1,4 @@
-<div class="tenor-gif-embed" data-postid="5734719894233934763" data-share-method="host" data-aspect-ratio="0.921687" data-width="100%"><a href="https://tenor.com/view/usagi-belly-rub-gif-5734719894233934763">Usagi Belly Rub GIF</a>from <a href="https://tenor.com/search/usagi+belly+rub-gifs">Usagi Belly Rub GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<div align="center">
+<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYWM5a2xtczlyd3VzbHFpdTllc2J5Z3g5MHJ0N2pkbGZnM2Y4YWJ0ZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/fnCj4ACcH8zYTKFbm6/giphy.gif" align="center" style="width: 100%" />
+</div>  
 ｡ ﾟ ꒰ঌ ✦໒꒱ ༘*.ﾟ><
