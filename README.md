@@ -1,5 +1,5 @@
-Wishing you a wonderful day, and I am Tram.
-( •̀ ω •́ )
+Wishing you a wonderful day. . .
+
 
 
 <div align="center">
